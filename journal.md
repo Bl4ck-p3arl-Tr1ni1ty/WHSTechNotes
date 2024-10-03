@@ -4,3 +4,5 @@ My bolt light sensor chose to opererate when my light shined in a specific spot 
   My thoughts on your instruction are that you didn't do anything wrong, Although i am not use too formats like this so it gets kind of hard and confusing for me .
 # September 17, 2024
 This is a free week.
+# October 3, 2024
+Computer science impacts my life in weird ways, like everytime i see  robot i always wonder what type of coding they used to command it or how they program games like subway surfers.
