@@ -6,3 +6,5 @@ My bolt light sensor chose to opererate when my light shined in a specific spot 
 This is a free week.
 # October 3, 2024
 Computer science impacts my life in weird ways, like everytime i see  robot i always wonder what type of coding they used to command it or how they program games like subway surfers.
+# October 15, 2024
+Today we are working on how computer science can influence other careers that are related to computer science, My first example is Police officers cameras, like in the video police wear cameras so they can enhance the saftey of officers and civilians. my second Example is Facial recongnition technology, Facial recongnition tech uses Clearview AI for police and or to identify Suspects, victims.
