@@ -8,3 +8,5 @@ This is a free week.
 Computer science impacts my life in weird ways, like everytime i see  robot i always wonder what type of coding they used to command it or how they program games like subway surfers.
 # October 15, 2024
 Today we are working on how computer science can influence other careers that are related to computer science, My first example is Police officers cameras, like in the video police wear cameras so they can enhance the saftey of officers and civilians. my second Example is Facial recongnition technology, Facial recongnition tech uses Clearview AI for police and or to identify Suspects, victims.
+# October 21, 2024 
+Some ways AI can help us is by running facial scans someimes people mistake other people for others like twins but most twins have one slight detail to tell one from another , and some ways AI cant hurt is that AI doesn't have feelings so when your grieving an AI therapy robot cant sympythize with you .
