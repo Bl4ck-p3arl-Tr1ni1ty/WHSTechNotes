@@ -12,3 +12,5 @@ Today we are working on how computer science can influence other careers that ar
 Some ways AI can help us is by running facial scans someimes people mistake other people for others like twins but most twins have one slight detail to tell one from another , and some ways AI cant hurt is that AI doesn't have feelings so when your grieving an AI therapy robot cant sympythize with you .
 # November 4, 2024
 It is important for you to protect your private data because you could easily get hacked and the hackers could stela your money and other finances, they could also commit cyber crimes in your name. Some actions i could take to make sure that my socials are secure is by avoiding suspicious websites and cookies are on those very websites. Yes i have shared something very personal but i have taken the right actions and removed the content. How i could balance be on social media while keeping my privacy is not awnser Unusual questions or text back people who try and offer me strange scams .
+# November 12, 2024 
+Some events that happened to my community is that trump has been elected and some people have been very concerned about trump back in office.
