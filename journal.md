@@ -14,3 +14,5 @@ Some ways AI can help us is by running facial scans someimes people mistake othe
 It is important for you to protect your private data because you could easily get hacked and the hackers could stela your money and other finances, they could also commit cyber crimes in your name. Some actions i could take to make sure that my socials are secure is by avoiding suspicious websites and cookies are on those very websites. Yes i have shared something very personal but i have taken the right actions and removed the content. How i could balance be on social media while keeping my privacy is not awnser Unusual questions or text back people who try and offer me strange scams .
 # November 12, 2024 
 Some events that happened to my community is that trump has been elected and some people have been very concerned about trump back in office.
+# December 6, 2024
+What concerens me about this type of technology is that Some people can't tell whats real and whats not. A way it think this tech couod be used is in is cyber security. I think that a robot should see the world through our eyes and value life as much as we do .
