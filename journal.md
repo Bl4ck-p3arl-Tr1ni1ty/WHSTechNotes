@@ -16,3 +16,6 @@ It is important for you to protect your private data because you could easily ge
 Some events that happened to my community is that trump has been elected and some people have been very concerned about trump back in office.
 # December 6, 2024
 What concerens me about this type of technology is that Some people can't tell whats real and whats not. A way it think this tech couod be used is in is cyber security. I think that a robot should see the world through our eyes and value life as much as we do .
+# December 9, 2024
+the brain rot term to me means Content that fries your brain. Although social media is one of mans greatest inventions it has more bad then good impacts on alot of things other than my mind. recently The words lore connects to dad lore from the memes and i don't know where slop comes from.
+In today's generration i don't think it's possible to multit-task.
