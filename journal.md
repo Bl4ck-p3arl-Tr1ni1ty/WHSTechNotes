@@ -19,3 +19,5 @@ What concerens me about this type of technology is that Some people can't tell w
 # December 9, 2024
 the brain rot term to me means Content that fries your brain. Although social media is one of mans greatest inventions it has more bad then good impacts on alot of things other than my mind. recently The words lore connects to dad lore from the memes and i don't know where slop comes from.
 In today's generration i don't think it's possible to multit-task.
+# January 13, 2025 
+I think that AI will affect the animation industry negatively, I think this affects people with a wide variety of skills beacuse ai can give them what they want and not what they need, this feels like a limit in the tech community . I think if you want to make it in a market like this you join entry level and rise through the ranks. 
