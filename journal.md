@@ -21,3 +21,6 @@ the brain rot term to me means Content that fries your brain. Although social me
 In today's generration i don't think it's possible to multit-task.
 # January 13, 2025 
 I think that AI will affect the animation industry negatively, I think this affects people with a wide variety of skills beacuse ai can give them what they want and not what they need, this feels like a limit in the tech community . I think if you want to make it in a market like this you join entry level and rise through the ranks. 
+
+January 22, 2025 
+I think the tiktok ban is very stupid and it would probably hurt our Economics system even when its already trash. they couldve instead addressed the tiktok CEO privately and asked questions that actually mattered instead of asking if tiktok can read minds, they could put restrictions or done something else. I would implement a a feature where you could leave notes on the presdidents associates and himselfs posts without any filters and there would be no #democrat or #republican. Social media isn;'t stupid its only stupid when put into the wrong hands . 
