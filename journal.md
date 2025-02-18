@@ -27,3 +27,6 @@ I think the tiktok ban is very stupid and it would probably hurt our Economics s
 
 February 3, 2025 
 I honestly think cyber Security aviation could have had a hand in this since trump fired the guy that checks the integrity of if planes are safe to bored or not. Cybersecurity breaches can compromise the safety and consistency of flight operations, damage the reputation of airlines, and result in financial loss, impacting both airlines and passengers. With standardized cybersecurity processes and reduced vulnerabilities, passengers may be less likely to be affected by cyber-related incidents. The primary role of aviation cybersecurity is to secure aircraft and associated systems against potential cyberattacks. This includes ensuring the safety and integrity of communication, navigation and operational systems on board the aircraft. those reasons are very important to cyber security aviation feild, securing jobs like those makes you a super hero . 
+
+Feburary 18, 2025 
+I learned that death is a hard consept for us all when we are younger as we grow older we accept and expect it . 
