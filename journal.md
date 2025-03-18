@@ -33,3 +33,6 @@ I learned that death is a hard consept for us all when we are younger as we grow
 
 # Feburary 24, 2025 
 It could help surf the web and eventually picking up on the latest trends like dances, art, songs, and games. some benifits from undestanding todays kids slang is undestanding the mentality some kids have in humnor and also understanding scenerios where somethings that are tragic can be turned into funny jokes to cope instead of adults always thinking we are the most disrespectful generation of all time. i think that schools should leave slang alonbe because slang is a way that kids can express themselves while saying things adults dont understand. some misunderstanding like if i said " fire " and someone actually thought there was a fire or someone mightve thought i was probably gang affiliated . 
+
+# March 18, 2025
+I mostly used my phone over break, the app i mostly played was block blast and roblox. my entertainment being my phone and my tv were still boring somehow probably challenging my laziness to get off my butt. i learned that blue light keeps people addicted to their tv and phone screens. 
