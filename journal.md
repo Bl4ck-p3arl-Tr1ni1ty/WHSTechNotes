@@ -36,3 +36,6 @@ It could help surf the web and eventually picking up on the latest trends like d
 
 # March 18, 2025
 I mostly used my phone over break, the app i mostly played was block blast and roblox. my entertainment being my phone and my tv were still boring somehow probably challenging my laziness to get off my butt. i learned that blue light keeps people addicted to their tv and phone screens. 
+
+# March 24, 2025
+I feel like this would have a small fight between the generations. old heads with complain that this technology will seperate families from watching things together. I believe the networks would have a feild day streaming this on netflix and hulu or on max or something. I know instagram will be gassing this up like the jake paul vs mike tyson fight. 
