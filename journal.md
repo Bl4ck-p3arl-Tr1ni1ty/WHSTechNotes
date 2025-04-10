@@ -40,7 +40,7 @@ I mostly used my phone over break, the app i mostly played was block blast and r
 # March 24, 2025
 I feel like this would have a small fight between the generations. old heads with complain that this technology will seperate families from watching things together. I believe the networks would have a feild day streaming this on netflix and hulu or on max or something. I know instagram will be gassing this up like the jake paul vs mike tyson fight. 
 
-# march 31, 2025 
+# March 31, 2025 
 Right now im trying to pass my classes but at the same time i wanna take care of myself but overall im doing alright. the most stressful thing about school is that teachers don't care about wether you pass of fail they wanna get through the day but that leads to laziness and then failing to put grades in and also failing to understand where a students coming from in a place of very high standards but can only get decent grades from all the stress and the thought about college and the army. things i do when im stressed is to just lay down play some rainfall noises on my tv and take a nap, or i just ask for help. my goal is to just make it to another year, but motiviation is harder to achieve . i trust my friend saith because even though ive only known her for a year shes shown me her true colors and their beautiful, she has also comforted me in my time of need so i trust her completely. thanks for listening .
 
 # April 7, 2025
