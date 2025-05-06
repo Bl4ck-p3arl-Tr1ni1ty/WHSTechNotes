@@ -46,3 +46,6 @@ Right now im trying to pass my classes but at the same time i wanna take care of
 # April 7, 2025
 With AI surfing the web and knowing the awnsers i believe the ai tools can come up with the awnsers and some scenario's for the reader to solve. the most useful feature would be that the anwser but you would have to search the web to get a different awnser so as to not have the same awnser as someone else. yes i would most definitely use it. as my grades are so low .
 With my grades be very low i have using ai tools to help me study and try to pass these tests and quizzes especially in algebra. Using these ai tools could help me bump my grade up a bitm and also help me uderstand the unti and class better.
+
+# May 6, 2025
+I do think 100 men could win because even if your a strong animal you can get tired when fighting off alot of entities. I think its so innapropriate that someone would make a suggestion like that because people are stupid and would do anything for clout and fame, there was a story on the internet about how a man intentionally jumped into a lion enclosure and gets mauled to death. this shows me that the internet acts like hive mind with thwo different personalities, one side likes this and the other likes that, it also shows that we would do anything just to argue .
